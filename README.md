@@ -1,7 +1,7 @@
 # 夏薇 Xia Wei
 <img src="https://i1.rgstatic.net/ii/profile.image/1001566383403009-1615803442128_Q512/Xia-Wei-2.jpg" width="400px">
 
-#### 中山大学护理学院，副教授，硕士研究导师
+#### 中山大学护理学院，副教授，博士研究生导师
 #### 研究方向： 成瘾行为干预，青少年与儿童健康
 
 - Email：xiaw23@mail.sysu.edu.cn / shallweer@foxmail.com  
